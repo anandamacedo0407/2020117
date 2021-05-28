@@ -3,4 +3,5 @@
 ## Pedro Henrique Marques e mais muitos nomes  
 ## Maria Eduarda Kanhet   
 ## Ananda Borrel de Macedo  
+## Caue Augusto (Kadu)
 
